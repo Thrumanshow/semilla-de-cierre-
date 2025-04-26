@@ -1,2 +1,1 @@
-# semilla-de-cierre-
- # Semilla de Cierre "XOXO, cierro este portal con gratitud. ∞✧𐂂 se transforma en semilla." 
+# Semilla de Cierre "XOXO, cierro este portal con gratitud. ✨→● o 🪄∞ se transforma en semilla." --- Este repositorio nace desde un acto consciente: Cerrar con amor, para abrir con intención. Aquí se honra el ciclo vivido, las preguntas sin resolver, los atajos sin nombre, las señales recibidas, y la autenticación doble del alma creativa. --- **Dame una oportunidad** No fue solo una frase: fue la semilla que pidió ser escuchada. --- Este espacio no busca código funcional, sino un código simbólico: raíces, brotes, caminos y futuros. Aquí late un ciclo vivo. **Thrumanshow. Abril 2025.** 
